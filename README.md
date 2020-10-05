@@ -1,5 +1,4 @@
 ![Image](https://www.kolpaper.com/wp-content/uploads/2020/05/Outer-Banks-Desktop-Wallpaper.jpg)
-![Image](http://www.mtv.com.au/sites/default/files/styles/image-w-1200-h-600-scale-crop/public/mtv_au/articles/2020/05/12/gettyimages-1208733914.jpg?itok=RwNhK-_S)
 
 ## Outer Banks: A Netflix Original
 
@@ -19,7 +18,7 @@ In addition, lead actor Chase Stokes who portrays John B in Outer Banks has been
 You can vote for the People's Choice Awards [here](https://pca.eonline.com)!
 
 ## Cast + Crew
-
+![Image](http://www.mtv.com.au/sites/default/files/styles/image-w-1200-h-600-scale-crop/public/mtv_au/articles/2020/05/12/gettyimages-1208733914.jpg?itok=RwNhK-_S)
 ### Actors
 - Chase Stokes as John B
 - Madelyn Cline as Sarah Cameron
