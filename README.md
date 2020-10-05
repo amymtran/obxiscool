@@ -20,6 +20,7 @@ You can vote for the People's Choice Awards [here](https://pca.eonline.com)!
 ## Cast + Crew
 ![Image](http://www.mtv.com.au/sites/default/files/styles/image-w-1200-h-600-scale-crop/public/mtv_au/articles/2020/05/12/gettyimages-1208733914.jpg?itok=RwNhK-_S)
 pictured above (from left to right): rudy pankow, jonathan davis, madison bailey, chase stokes, madelyn cline
+
 ### Actors
 - Chase Stokes as John B
 - Madelyn Cline as Sarah Cameron
@@ -41,4 +42,3 @@ Netflix and the Outer Banks cast has confirmed a second season. Season 2 officia
 
 ## Watch Here
 Haven't watched Outer Banks or want to rewatch it? Watch exculsively on [Netflix](https://www.netflix.com) or on the Netflix app.
-
