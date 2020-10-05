@@ -27,6 +27,8 @@ You can vote for the People's Choice Awards [here](https://pca.eonline.com)!
 - Austin North as Topper
 - Drew Starkey as Rafe
 
+### Directors
+- 
 You can view the complete list of Outer Bank's Cast and Crew on [IMBd](https://www.imdb.com/title/tt10293938/fullcredits).
 
 ## Season Two
