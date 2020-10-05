@@ -17,6 +17,18 @@ To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
 
 ## Cast + Crew
 
+### Actors:
+- Chase Stokes as John B
+- Madelyn Cline as Sarah Cameron
+- Rudy Pankow as JJ
+- Jonathan Davis as Pope
+- Madison Bailey as Kiara
+- Charles Esten as Ward Cameron
+- Austin North as Topper
+- Drew Starkey as Rafe
+- Adina Porter as Sheriff Peterkin
+- Cullen Moss as Deputy Shoupe
+
 ### Directed By:
 - Jonas Pate
 - Cherie Nowlan
@@ -32,6 +44,7 @@ To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
 - Jonas Pate	(executive producer)
 - Josh Pate	(executive producer)
 
+You can view the entire Cast and Crew on [IMBd](https://www.imdb.com/title/tt10293938/fullcredits)
 ### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
@@ -56,10 +69,6 @@ Syntax highlighted code block
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/amymtran/obxiscool/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Watch Here
+## Watch Here
 
 Want to Watch Outer Banks? You can watch it on [Netflix](https://www.netflix.com) or on the Netflix app.
