@@ -18,11 +18,19 @@ To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
 ## Cast + Crew
 
 ### Directed By:
-Jonas Pate
-Cherie Nowlan
-Valerie Weiss
+- Jonas Pate
+- Cherie Nowlan
+- Valerie Weiss
 
 ### Produced By:
+- Keith Josef Adkins (co-producer)
+- Jay Beattie	(Consulting Producer)
+- Shannon Burke	(executive producer)
+- Dan Dworkin	(Consulting Producer)
+- Sunny Hodge	(producer)
+- Tim Iacofano	(co-executive producer)
+- Jonas Pate	(executive producer)
+- Josh Pate	(executive producer)
 
 ### Markdown
 
