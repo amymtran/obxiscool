@@ -1,4 +1,6 @@
 ![Image](https://www.kolpaper.com/wp-content/uploads/2020/05/Outer-Banks-Desktop-Wallpaper.jpg)
+![Image](https://lh3.googleusercontent.com/proxy/0Io3gclxQuxmVg8qOwRCri-Re-kER-sNIulKbUdiJHLl4faw35tLMj8Cp4_Sfkioh4YVjcg3Ia3fjQHxwnf3A2iLgfYN56A9pc_VgUfROseoivyfZYnVohAC-KRq7k_Pj2yL2QozQ1wMINKmVv29fFHpsecfRZkPnWW-y-MyJmAHZ8wNWvvChIfoVCAlSBMpRS1HYNeFDVf6Mcua04xkl44HXalIe7_rB9jSl-Is1spA)
+
 ## Outer Banks: A Netflix Original
 
 Outer Banks is a show that aired on Netflix on April 15, 2020. In the show, a group of teenagers spend their summer searching for lost treasure. Acction packed, this show is a must-watch!
