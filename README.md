@@ -34,16 +34,6 @@ To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
 - Cherie Nowlan
 - Valerie Weiss
 
-### Produced By:
-- Keith Josef Adkins (co-producer)
-- Jay Beattie	(Consulting Producer)
-- Shannon Burke	(executive producer)
-- Dan Dworkin	(Consulting Producer)
-- Sunny Hodge	(producer)
-- Tim Iacofano	(co-executive producer)
-- Jonas Pate	(executive producer)
-- Josh Pate	(executive producer)
-
 You can view the entire Cast and Crew on [IMBd](https://www.imdb.com/title/tt10293938/fullcredits)
 ### Markdown
 
