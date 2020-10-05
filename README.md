@@ -1,5 +1,5 @@
 ![Image](https://www.kolpaper.com/wp-content/uploads/2020/05/Outer-Banks-Desktop-Wallpaper.jpg)
-![Image](https://lh3.googleusercontent.com/proxy/0Io3gclxQuxmVg8qOwRCri-Re-kER-sNIulKbUdiJHLl4faw35tLMj8Cp4_Sfkioh4YVjcg3Ia3fjQHxwnf3A2iLgfYN56A9pc_VgUfROseoivyfZYnVohAC-KRq7k_Pj2yL2QozQ1wMINKmVv29fFHpsecfRZkPnWW-y-MyJmAHZ8wNWvvChIfoVCAlSBMpRS1HYNeFDVf6Mcua04xkl44HXalIe7_rB9jSl-Is1spA)
+![Image](]http://www.mtv.com.au/sites/default/files/styles/image-w-1200-h-600-scale-crop/public/mtv_au/articles/2020/05/12/gettyimages-1208733914.jpg?itok=RwNhK-_S)
 
 ## Outer Banks: A Netflix Original
 
