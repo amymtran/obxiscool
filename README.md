@@ -14,7 +14,7 @@ In addition, lead actor Chase Stokes who portrays John B in Outer Banks has been
 - Drama TV Star of 2020
 - The Male TV Star of 2020
 
-To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
+You can vote for the People's Choice Awards [here](https://pca.eonline.com)
 
 ## Cast + Crew
 
