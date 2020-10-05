@@ -23,7 +23,7 @@ Syntax highlighted code block
 
 **Bold** and _Italic_ and `Code` text
 
-to watch Outer Banks [netflix](https://www.netflix.com) and ![Image](src)
+You can watch Outer Banks on [netflix](https://www.netflix.com) and ![Image](src)
 ```
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
