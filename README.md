@@ -1,6 +1,6 @@
 ## Outer Banks: A Netflix Original
 
-You can use the [editor on GitHub](https://github.com/amymtran/obxiscool/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Outer Banks is a show that aired on Netflix on April 15, 2020. In the show, a group of teenagers spend their summer searching for lost treasure. Acction packed, this show is a must-watch!
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
