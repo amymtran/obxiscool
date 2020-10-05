@@ -18,7 +18,7 @@ In addition, lead actor Chase Stokes who portrays John B in Outer Banks has been
 You can vote for the People's Choice Awards [here](https://pca.eonline.com)!
 
 ## Cast + Crew
-![Image](http://www.mtv.com.au/sites/default/files/styles/image-w-1200-h-600-scale-crop/public/mtv_au/articles/2020/05/12/gettyimages-1208733914.jpg?itok=RwNhK-_S)
+![Image](https://lh3.googleusercontent.com/proxy/qslXHa3EQAJ5YvhVQ1M7MJLkyIrhUpDXkQL4DzpamA95L3j0Bd8dx5_EB-eWsLXtxzItC0H3NnWLelqna1zpq3LwnxzXFM2gtXDoqx5d3VOFACxhxextojlE-d71CVjFM6aOKLB-8rnkkVUwITYYGjf7JT2l6pzdDKNydIILj22qRQljEwRPkN5dxKyUiZ4YOopyoaBBeIzzmyCcOEjZ-sJU49CkXeOEC4-9rreRJWzL)
 pictured above (from left to right): rudy pankow, jonathan davis, madison bailey, chase stokes, madelyn cline
 
 ### Actors
@@ -41,5 +41,4 @@ You can view the complete list of Outer Bank's Cast and Crew on [IMBd](https://w
 Netflix and the Outer Banks cast has confirmed a second season. Season 2 officially began filming on August 31, 2020. We can hopefully expect Season 2 to air in 2021.
 
 ## Watch Here
-Haven't watched Outer Banks or want to rewatch it? Watch exculsively on [Netflix](https://www.netflix.com) or on the Netflix app. hihi
-
+Haven't watched Outer Banks or want to rewatch it? Watch exculsively on [Netflix](https://www.netflix.com) or on the Netflix app. 
