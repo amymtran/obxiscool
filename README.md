@@ -40,4 +40,3 @@ You can view the entire Cast and Crew on [IMBd](https://www.imdb.com/title/tt102
 ## Watch Here
 
 Want to Watch Outer Banks? You can watch it on [Netflix](https://www.netflix.com) or on the Netflix app.
-![Image](https://assets.brand.microsites.netflix.io/assets/493f5bba-81a4-11e9-bf79-066b49664af6_cm_1440w.png?v=41)
