@@ -1,6 +1,6 @@
+![Image](https://www.wbtw.com/wp-content/uploads/sites/22/2020/04/outer-banks.jpg?w=512&h=288&crop=1)
 ## Outer Banks: A Netflix Original
 
-![Image](https://www.wbtw.com/wp-content/uploads/sites/22/2020/04/outer-banks.jpg?w=512&h=288&crop=1)
 Outer Banks is a show that aired on Netflix on April 15, 2020. In the show, a group of teenagers spend their summer searching for lost treasure. Acction packed, this show is a must-watch!
 
 ## PCAs
