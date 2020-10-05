@@ -18,7 +18,7 @@ To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
 
 ## Cast + Crew
 
-### Actors
+### Main Actors
 - Chase Stokes as John B
 - Madelyn Cline as Sarah Cameron
 - Rudy Pankow as JJ
