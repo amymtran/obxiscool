@@ -28,7 +28,10 @@ You can vote for the People's Choice Awards [here](https://pca.eonline.com)!
 - Drew Starkey as Rafe
 
 ### Directors
-- 
+- Jonas Pate
+- Cherie Nowlan
+- Valerie Weiss
+
 You can view the complete list of Outer Bank's Cast and Crew on [IMBd](https://www.imdb.com/title/tt10293938/fullcredits).
 
 ## Season Two
