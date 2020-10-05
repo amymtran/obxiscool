@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Outer Banks: A Netflix Original
 
 You can use the [editor on GitHub](https://github.com/amymtran/obxiscool/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
