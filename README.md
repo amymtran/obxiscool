@@ -18,24 +18,16 @@ You can vote for the People's Choice Awards [here](https://pca.eonline.com)
 
 ## Cast + Crew
 
-### Main Actors
+### Actors
 - Chase Stokes as John B
 - Madelyn Cline as Sarah Cameron
 - Rudy Pankow as JJ
 - Jonathan Davis as Pope
 - Madison Bailey as Kiara
-- Charles Esten as Ward Cameron
 - Austin North as Topper
 - Drew Starkey as Rafe
-- Adina Porter as Sheriff Peterkin
-- Cullen Moss as Deputy Shoupe
 
-### Directors
-- Jonas Pate
-- Cherie Nowlan
-- Valerie Weiss
-
-You can view the entire Cast and Crew on [IMBd](https://www.imdb.com/title/tt10293938/fullcredits)
+You can view the complete list of Outer Bank's Cast and Crew on [IMBd](https://www.imdb.com/title/tt10293938/fullcredits).
 
 ## SEASON TWO
 Netflix and the Outer Banks cast has confirmed a second season. Season 2 officially began filming on August 31, 2020. We can hopefully expect Season 2 to air in 2021.
