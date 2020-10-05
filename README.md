@@ -37,8 +37,8 @@ You can vote for the People's Choice Awards [here](https://pca.eonline.com)
 
 You can view the entire Cast and Crew on [IMBd](https://www.imdb.com/title/tt10293938/fullcredits)
 
-## Watch Here
-Haven't watched Outer Banks or want to rewatch it? Watch exculsively on [Netflix](https://www.netflix.com) or on the Netflix app.
-
 ## SEASON TWO
 Netflix and the Outer Banks cast has confirmed a second season. Season 2 officially began filming on August 31, 2020. We can hopefully expect Season 2 to air in 2021.
+
+## Watch Here
+Haven't watched Outer Banks or want to rewatch it? Watch exculsively on [Netflix](https://www.netflix.com) or on the Netflix app.
