@@ -17,7 +17,7 @@ To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
 
 ## Cast + Crew
 
-### Actors:
+### Actors
 - Chase Stokes as John B
 - Madelyn Cline as Sarah Cameron
 - Rudy Pankow as JJ
@@ -29,7 +29,7 @@ To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
 - Adina Porter as Sheriff Peterkin
 - Cullen Moss as Deputy Shoupe
 
-### Directed By:
+### Directors
 - Jonas Pate
 - Cherie Nowlan
 - Valerie Weiss
