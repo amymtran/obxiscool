@@ -40,4 +40,4 @@ Netflix and the Outer Banks cast has confirmed a second season. Season 2 officia
 ## Watch Here
 Haven't watched Outer Banks or want to rewatch it? Watch exculsively on [Netflix](https://www.netflix.com) or on the Netflix app.
 
-![Image](https://wallpapercave.com/wp/wp6294160.jpg)
+![Image](https://www.wavy.com/wp-content/uploads/sites/3/2020/04/outer-banks.jpg)
