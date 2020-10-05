@@ -1,6 +1,6 @@
 ## Outer Banks: A Netflix Original
 
-![Image](src)
+![Image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.outerbanks.org%2Fblog%2Fpost%2Fcomparing-outer-banks-netflix-show-to-the-real-obx%2F&psig=AOvVaw0WJoGUpU6lOKJFE7XPs13b&ust=1601956912884000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMi3ntjInOwCFQAAAAAdAAAAABAD)
 Outer Banks is a show that aired on Netflix on April 15, 2020. In the show, a group of teenagers spend their summer searching for lost treasure. Acction packed, this show is a must-watch!
 
 ## PCAs
