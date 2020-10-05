@@ -19,6 +19,7 @@ You can vote for the People's Choice Awards [here](https://pca.eonline.com)!
 
 ## Cast + Crew
 ![Image](http://www.mtv.com.au/sites/default/files/styles/image-w-1200-h-600-scale-crop/public/mtv_au/articles/2020/05/12/gettyimages-1208733914.jpg?itok=RwNhK-_S)
+pictured above (from left to right): rudy pankow, jonathan davis, madison bailey, chase stokes, madelyn cline)
 ### Actors
 - Chase Stokes as John B
 - Madelyn Cline as Sarah Cameron
