@@ -2,9 +2,7 @@
 
 Outer Banks is a show that aired on Netflix on April 15, 2020. In the show, a group of teenagers spend their summer searching for lost treasure. Acction packed, this show is a must-watch!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### PCAs
+## PCAs
 
 Outer Banks has already been nominated for three People's Choice Awards!
 - The Show of 2020
@@ -15,7 +13,17 @@ In addition, lead actor Chase Stokes who portrays John B in Outer Banks has been
 - Drama TV Star of 2020
 - The Male TV Star of 2020
 
-To vote for the People's Choice Awards, click [Here](https://pca.eonline.com)
+To vote for the People's Choice Awards, click [here](https://pca.eonline.com)
+
+## Cast + Crew
+
+### Directed By:
+Jonas Pate
+Cherie Nowlan
+Valerie Weiss
+
+### Produced By:
+
 ### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
