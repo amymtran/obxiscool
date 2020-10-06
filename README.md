@@ -18,7 +18,7 @@ In addition, lead actor Chase Stokes who portrays John B in Outer Banks has been
 You can vote for the People's Choice Awards [here](https://pca.eonline.com)!
 
 ## Cast + Crew
-![Image](https://lh3.googleusercontent.com/proxy/qslXHa3EQAJ5YvhVQ1M7MJLkyIrhUpDXkQL4DzpamA95L3j0Bd8dx5_EB-eWsLXtxzItC0H3NnWLelqna1zpq3LwnxzXFM2gtXDoqx5d3VOFACxhxextojlE-d71CVjFM6aOKLB-8rnkkVUwITYYGjf7JT2l6pzdDKNydIILj22qRQljEwRPkN5dxKyUiZ4YOopyoaBBeIzzmyCcOEjZ-sJU49CkXeOEC4-9rreRJWzL)
+![Image]https://media1.popsugar-assets.com/files/thumbor/1Zzbby76h_61m3H83IIHNdHVZR0/1001x0:4611x3610/fit-in/2048xorig/filters:format_auto-!!-:strip_icc-!!-/2020/04/02/955/n/44498184/a1f355f65e865f66989e22.79804225_/i/outer-banks-cast-on-instagram-twitter.jpg)
 
 pictured above (from left to right): rudy pankow, jonathan davis, madison bailey, chase stokes, madelyn cline
 
